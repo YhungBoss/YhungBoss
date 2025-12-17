@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YhungBoss
+- 👋 Hi, I’m @OMEGA
 
 - 😄 Pronouns: He/Him
 
